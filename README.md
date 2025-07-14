@@ -124,6 +124,9 @@ From nothing — I built **everything**.
 > “Code is not just syntax. It’s identity, resilience, and revolution.”
 
 🔗 [LinkedIn](https://www.linkedin.com/in/ayman-bouaziz-7ab181349)  
+
+E-mail:  projects.aymanbouaziz@gmail.com
+
 🌐 [Portfolio Website](https://aymanbouaziz.dev) (Coming Soon!)
 
 ---
