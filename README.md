@@ -137,3 +137,5 @@ E-mail:  projects.aymanbouaziz@gmail.com
 And **Ayman Bouaziz is already doing that.”**
 
 📩 Want to work together? Let's connect.
+
+/storage/emulated/0/DCIM/Camera/IMG20250716165647.jpg
