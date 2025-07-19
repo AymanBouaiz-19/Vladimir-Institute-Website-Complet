@@ -131,9 +131,32 @@ E-mail:  projects.aymanbouaziz@gmail.com
 
 ---
 
+🌐 Connect with Vladimir Institute
+Stay connected and follow our journey through our official platforms:
+
+📸 Instagram: @vladimir_institute -    https://www.instagram.com/vladimir_institute
+
+e-mail: vladimirinstitute@gmail.com 
+
+info.vladimirinstitute.com (coming soon)
+
+📘 Facebook: https://www.facebook.com/Vladimirinstitution
+
+💬 WhatsApp: +212 624 229037
+
+              +212 766 827897
+
+🌍 Official Website: www.vladimirinstitute.com (Coming Soon)
+
+---
+
 ## 🏆 Final Words
 
 > “If you’re a tech company, an education startup, or an institution seeking digital excellence — then you need people who can *build beyond the syllabus*...  
 And **Ayman Bouaziz is already doing that.”**
 
 📩 Want to work together? Let's connect.
+![1000011026](https://github.com/user-attachments/assets/768fcb62-6788-4142-b88c-efce0250cec7)
+![1000011027](https://github.com/user-attachments/assets/7c5955be-c477-4b0e-a44c-767cd8cbc791)
+![1000011028](https://github.com/user-attachments/assets/a588b158-70d2-40ca-a412-4924df5dcd71)
+![1000011029](https://github.com/user-attachments/assets/76fd1052-ca1a-486d-b569-d9ba15b65fd9)
